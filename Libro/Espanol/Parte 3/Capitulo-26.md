@@ -1,0 +1,18 @@
+## Capítulo 26. El Sentido de la Vida
+ 
+Si hay algo que ha sido profundamente sanador y reconfortante para mí, es haber encontrado un sentido a la vida. Una razón para despertar cada mañana y vivir plenamente. Definir este sentido no es tarea sencilla. Decir que es obedecer a Dios podría sonar como una forma de sumisión. Hablar de vivir en armonía con el universo podría parecer demasiado abstracto o metafísico. Tal vez, la forma más clara de expresarlo es decir que el sentido de la vida, para mí, es vivir con ética.
+Vivir con ética significa guiar cada acción hacia una justicia que no es solo terrenal, sino divina o universal, según se quiera interpretar. Aunque estas palabras puedan tener connotaciones distintas para cada persona, para mí las tres son una sola y la misma verdad.
+### La Imperfección Humana y la Dirección Correcta
+Esto no significa que deba ser perfecto. Soy humano, con una inteligencia limitada, sujeto a deseos biológicos y necesidades químicas. Reconocer estas limitaciones no me exime de la responsabilidad de orientar siempre mis actos hacia los principios que considero sagrados: el amor, la justicia y la verdad.
+Cometer errores es inevitable, pero no definitivo. Si me equivoco, no me considero condenado. Sin embargo, es esencial que, al reconocer un error, permita que el sentimiento de arrepentimiento surja dentro de mí. Este arrepentimiento no es un castigo, sino una señal que me guía de regreso al camino correcto, alineando nuevamente mis acciones con lo que debe ser el sentido de la vida.
+### Una Visión Simbólica del Propósito
+A veces, para expresar esta idea, recurro a una visión más simbólica. Imagino un momento en el que Dios se sienta a mi lado, pasa un brazo por encima de mis hombros y me dice con ternura:
+"Este es el mundo que he creado, y estos son todos mis hijos. Trátalos con el respeto que merecen como parte de mi creación."
+Este sencillo gesto encierra una verdad poderosa: nuestra vida no es solo nuestra. Somos parte de algo mucho más grande, y cada acción que tomamos afecta el delicado equilibrio de este mundo y de quienes lo habitan.
+### Corregir Sin Juzgar
+Este respeto hacia los demás no implica tolerar todo sin discernimiento. Significa reconocer mi rol en la vida. No he venido a juzgar ni a castigar, sino a cumplir la voluntad del creador y, en la medida de lo posible, ayudar a otros a cumplirla también. Decir la verdad y corregir con amor no es incompatible con este propósito; al contrario, es una expresión de él.
+Sin embargo, esta corrección debe estar guiada por la empatía y el entendimiento, no por la arrogancia o el deseo de imponer. El respeto por la dignidad de los demás y la humildad al reconocer mis propias limitaciones son fundamentales para cumplir este papel.
+### Reflexión Final: Un Propósito en Comunión
+El sentido de la vida no es algo que se impone desde fuera, ni algo que pueda ser reducido a una definición única. Es una comunión entre nuestra naturaleza humana y la fuerza creadora que nos da propósito.
+Vivir con ética, sentirme orgulloso de cada acción que oriento hacia el amor y la justicia, y corregir mis errores con humildad, son las maneras en que encuentro significado y plenitud. Es un camino imperfecto, pero profundamente humano y divino al mismo tiempo.
+Imaginar que Dios, con su infinito amor, confía en mí para cuidar de su creación y de mis semejantes, es un pensamiento que me inspira y me guía. Mi propósito no es juzgar ni castigar, sino caminar junto a los demás, ayudándolos a encontrar su propio sentido de la vida mientras todos buscamos vivir en armonía con el universo y con la voluntad de servir a Dios.
