@@ -30,5 +30,5 @@ La vida es un proceso continuo de aprendizaje. Escucha con atención, incluso cu
 Cada acción debe construir algo que dure y que no destruya los recursos de los que depende la vida. La creación sostenible es el legado más grande que podemos dejar.
 ### Perdonar
 El perdón no libera al otro, sino a ti mismo. Perdonar es soltar el peso del rencor y abrir espacio para la paz y la reconciliación.
-###Conclusión
+### Conclusión
 Llegar a la victoria no es un destino, es un camino que se recorre todos los días. Es vivir con propósito, guiado por el amor, la justicia y la verdad. Es construir un mundo donde todos puedan florecer, empezando por nosotros mismos.
