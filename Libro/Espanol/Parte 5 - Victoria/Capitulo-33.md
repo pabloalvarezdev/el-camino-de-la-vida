@@ -30,5 +30,10 @@ La vida es un proceso continuo de aprendizaje. Escucha con atención, incluso cu
 Cada acción debe construir algo que dure y que no destruya los recursos de los que depende la vida. La creación sostenible es el legado más grande que podemos dejar.
 ### Perdonar
 El perdón no libera al otro, sino a ti mismo. Perdonar es soltar el peso del rencor y abrir espacio para la paz y la reconciliación.
+### Honrar a los difuntos
+Los difuntos representan la máxima vulnerabilidad en nuestro mundo, pues no pueden alzar su voz ni defenderse de acusaciones, tergiversaciones o deshonras. Es nuestra responsabilidad, como seres éticos, defender su dignidad y preservar su memoria con justicia. Honrar a los difuntos no solo es un acto de respeto hacia quienes ya no están, sino también un reflejo de nuestra propia humanidad y nuestro compromiso con el amor y la verdad. Defender a quienes no pueden protegerse es una manifestación de la fuerza creadora en su máxima expresión: cuidar y preservar aquello que es valioso, incluso cuando ya no está presente.
+### Respetar al rival
+Un rival no es un enemigo; es, muchas veces, una oportunidad para aprender, crecer y reflexionar. Respetar al rival no solo es una cuestión de ética, sino también de estrategia. La soberbia y el menosprecio hacia ellos fortalecen su causa y pueden encender en ellos un deseo de venganza. En cambio, el respeto desarma, genera admiración y, con el tiempo, puede transformar un enfrentamiento en una colaboración. Además, debemos considerar la posibilidad de que sea nuestra percepción la que esté equivocada, o que el destino los haya colocado como nuestros rivales por razones que aún no comprendemos. Respetarles es abrir la puerta a la reconciliación y a la posibilidad de unir fuerzas en un futuro, fortaleciendo aquello que realmente importa: la creación, el amor y la armonía universal.
+
 ### Conclusión
 Llegar a la victoria no es un destino, es un camino que se recorre todos los días. Es vivir con propósito, guiado por el amor, la justicia y la verdad. Es construir un mundo donde todos puedan florecer, empezando por nosotros mismos.
