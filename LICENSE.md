@@ -13,10 +13,7 @@ This book is distributed in the hope that it will be useful, but WITHOUT ANY WAR
    - Your modifications are shared under the same license.
    - The adaptations remain aligned with the principles de la verdad, la creación y el amor descritos en el libro original.
 
-3. **Acknowledgment**: Please include the following acknowledgment in derivative works:  
-   "This work is based on the original book 'El Camino de la Vida', published under the GNU General Public License."
-
-4. **Prohibited Uses**: This license prohibits any use of this book or derivative works for:
+3. **Prohibited Uses**: This license prohibits any use of this book or derivative works for:
    - Commercial purposes.
    - Propagation of falsehoods, hatred, or destruction.
 
