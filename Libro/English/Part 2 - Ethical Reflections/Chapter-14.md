@@ -34,8 +34,3 @@ Recognizing lies as one of the primary sources of destruction is the first step 
 
 This chapter invites us to reflect on the impact of our words and actions and to commit to the pursuit and defense of truth as a path to overcome error and combat the destructive cycles perpetuated by lies.
 
-
-
-
-
-
