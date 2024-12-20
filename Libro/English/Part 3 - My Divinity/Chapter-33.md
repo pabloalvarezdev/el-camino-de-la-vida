@@ -1,4 +1,4 @@
-## Chapter 33: Reaching Victory
+## Chapter 33: Reaching Victoria
 
 Life is not a constant struggle but a strategy to live in harmony with the universe, with others, and with oneself. Reaching victory does not mean defeating others but achieving a state of peace, justice, and love that inspires everyone to be better. It is living in coherence with the values that sustain creation. Here is a guide to knowing how to live—a strategy that leads us to true victory.
 
