@@ -12,9 +12,8 @@ Este tipo de equivocación no convierte a estas personas en malas de manera intr
 ### La destrucción y el sufrimiento
 Por el contrario, la destrucción o la muerte de algo solo puede generar sufrimiento e infelicidad. Cuando algo se destruye o se pierde, ya sea una creación, una vida o una relación, el resultado es una ausencia que provoca dolor y vacío. La destrucción interrumpe el ciclo natural de la creación y, en lugar de aportar crecimiento, produce una energía negativa que nos aleja del bienestar y la armonía.
 ### La destrucción y el arrepentimiento
-Aunque pueda parecer que ciertos actos de destrucción resultan satisfactorios o incluso generan alegría, esta satisfacción solo es justificable en dos casos específicos:
-1.	La destrucción se realiza con el único fin de permitir una creación aún mayor, donde el acto destructivo es solo una etapa necesaria para algo más valioso.
-2.	El agente que lleva a cabo la destrucción no es consciente del sufrimiento que ha causado.
+La destrucción, en cualquier forma, nunca debería ser fuente de satisfacción porque va en contra de la fuerza creadora que guía a la inteligencia hacia el amor y la armonía. La destrucción, en un marco ético, solo puede justificarse como una herramienta de último recurso, cuando su objetivo es evitar un mal mayor que cause más sufrimiento y únicamente cuando no haya otra opción viable.
+La unica razon por la que un agente que lleva a cabo la destrucción es por que no e consciente del sufrimiento que ha causado.
 Sin embargo, en el momento en que el agente se da cuenta del sufrimiento que ha generado o de que la destrucción no era necesaria para fomentar una creación mayor, experimentará un arrepentimiento automático por su acción.
 ### Las acciones destructivas impulsadas por el odio
 Las acciones destructivas motivadas por el odio nunca producen una verdadera satisfacción. Más bien, generan un sentimiento perverso que se congratula por la destrucción creada. Sin embargo, esta sensación va en contra de las leyes fundamentales de la creación.
