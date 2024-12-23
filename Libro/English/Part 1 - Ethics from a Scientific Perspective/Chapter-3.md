@@ -19,7 +19,7 @@ Conversely, destruction or the death of something can only result in suffering a
 Destruction, in any form, is never a source of happiness because it goes against the creative force that guides intelligence toward love and harmony. Destruction, within an ethical framework, can only be justified as a last resort when its purpose is to prevent a greater harm that would cause more suffering, and only when no other viable option exists.
 The only reason an agent engages in destruction is due to unawareness of the suffering it has caused.
 However, the moment the agent becomes aware of the suffering it has generated or realizes that the destruction was unnecessary, they will experience automatic repentance for their action.
-Destructive Actions Driven by Hate
+### Destructive Actions Driven by Hate
 Destructive actions motivated by hate never produce true satisfaction. Instead, they generate a perverse feeling of satisfaction derived from the destruction caused. However, this sensation goes against the fundamental laws of creation. A destructive action driven by hate generates two main reactions:
 
 An inherent aversion in all conscious beings to the reason behind the destructive action, as hate opposes the natural order of life.
