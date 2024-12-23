@@ -20,6 +20,7 @@ Sin embargo, lo que observamos con la justicia es lo contrario: en situaciones d
 Por ejemplo, si preguntamos a un grupo diverso de personas ¿Cuál de estos dos hechos te parece más injusto?
   1.	Un hombre pobre y sin recursos que roba naranjas para alimentar a sus hijos hambrientos.
   2.	Un médico adinerado que roba los riñones de un desconocido para comprarse un coche de lujo.
+
 En este caso, la respuesta parece obvia para la mayoría de las personas: el segundo caso es claramente más injusto. Este consenso muestra que, incluso en una sociedad diversa y con diferentes perspectivas culturales, hay un "sentido común" que nos permite distinguir entre grados de injusticia.
 El robo de un órgano para beneficio personal no solo viola la dignidad y la vida de otro ser humano, sino que es un acto de abuso de poder y privilegio extremo. Por otro lado, el robo de naranjas por parte de alguien en extrema necesidad se percibe como un acto motivado por la desesperación, donde el daño causado parece mucho menor y está relacionado con una lucha por la supervivencia.
 Este ejemplo evidencia que la justicia no es completamente relativa. Aunque puede haber matices en ciertos casos, existen situaciones en las que la percepción de lo justo o injusto es universal y profundamente arraigada en nuestra comprensión ética como seres humanos.
