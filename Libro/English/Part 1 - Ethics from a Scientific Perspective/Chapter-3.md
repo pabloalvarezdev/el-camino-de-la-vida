@@ -15,11 +15,11 @@ This does not make them inherently bad people; their problem lies in mistaking t
 Conversely, destruction or the death of something can only result in suffering and unhappiness. When something is destroyed or lost—whether it is a creation, a life, or a relationship—the result is an absence that causes pain and emptiness. Destruction disrupts the natural cycle of creation and, instead of fostering growth, produces negative energy that distances us from well-being and harmony.
 
 ### Destruction and Regret
-While it may seem that certain acts of destruction bring satisfaction or even joy, this satisfaction can only be justified in two specific cases:
 
-When destruction is carried out solely to allow for an even greater creation, where the destructive act is merely a necessary step for something more valuable.
-When the agent carrying out the destruction is unaware of the suffering it has caused. However, once the agent realizes the suffering generated or that the destruction was unnecessary to foster greater creation, they will experience automatic regret for their action.
-Destructive Actions Driven by Hate
+Destruction, in any form, is never a source of happiness because it goes against the creative force that guides intelligence toward love and harmony. Destruction, within an ethical framework, can only be justified as a last resort when its purpose is to prevent a greater harm that would cause more suffering, and only when no other viable option exists.
+The only reason an agent engages in destruction is due to unawareness of the suffering it has caused.
+However, the moment the agent becomes aware of the suffering it has generated or realizes that the destruction was unnecessary, they will experience automatic repentance for their action.
+### Destructive Actions Driven by Hate
 Destructive actions motivated by hate never produce true satisfaction. Instead, they generate a perverse feeling of satisfaction derived from the destruction caused. However, this sensation goes against the fundamental laws of creation. A destructive action driven by hate generates two main reactions:
 
 An inherent aversion in all conscious beings to the reason behind the destructive action, as hate opposes the natural order of life.
