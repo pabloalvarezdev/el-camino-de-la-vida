@@ -13,7 +13,7 @@ Este tipo de equivocación no convierte a estas personas en malas de manera intr
 Por el contrario, la destrucción o la muerte de algo solo puede generar sufrimiento e infelicidad. Cuando algo se destruye o se pierde, ya sea una creación, una vida o una relación, el resultado es una ausencia que provoca dolor y vacío. La destrucción interrumpe el ciclo natural de la creación y, en lugar de aportar crecimiento, produce una energía negativa que nos aleja del bienestar y la armonía.
 ### La destrucción y el arrepentimiento
 La destrucción, en cualquier forma, nunca es fuente de Felicidad porque va en contra de la fuerza creadora que guía a la inteligencia hacia el amor y la armonía. La destrucción, en un marco ético, solo puede justificarse como una herramienta de último recurso, cuando su objetivo es evitar un mal mayor que cause más sufrimiento y únicamente cuando no haya otra opción viable.
-La unica razon por la que un agente que lleva a cabo la destrucción es por que no e consciente del sufrimiento que ha causado.
+La unica razon por la que un agente lleva a cabo la destrucción es por que no es consciente del sufrimiento que causa.
 Sin embargo, en el momento en que el agente se da cuenta del sufrimiento que ha generado o de que la destrucción no era necesaria, experimentará un arrepentimiento automático por su acción.
 ### Las acciones destructivas impulsadas por el odio
 Las acciones destructivas motivadas por el odio nunca producen una verdadera satisfacción. Más bien, generan un sentimiento perverso que se congratula por la destrucción creada. Sin embargo, esta sensación va en contra de las leyes fundamentales de la creación.
