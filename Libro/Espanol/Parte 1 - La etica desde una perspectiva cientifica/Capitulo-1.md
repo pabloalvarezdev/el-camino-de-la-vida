@@ -27,6 +27,7 @@ Este ejemplo evidencia que la justicia no es completamente relativa. Aunque pued
 Si, en cambio, preguntáramos: ¿Qué es más justo?
 1.	Un país donde cada persona gane exactamente lo que es capaz de producir.
 2.	Un país donde exista una redistribución de la riqueza para ayudar a quienes no tienen la capacidad de producir.
+
 En este caso, el resultado sería mucho menos claro. Las respuestas probablemente estarían divididas, reflejando diferentes perspectivas y valores. Algunos podrían considerar más justo que cada uno reciba en función de su esfuerzo y capacidad, mientras que otros defenderían la idea de redistribuir los recursos para garantizar que nadie quede atrás, independientemente de sus circunstancias.
 Esta dispersión en las respuestas puede parecer contradictoria. Mientras que en el ejemplo anterior la justicia parecía algo evidente y universal, en este caso parece que no hay un consenso claro. Esto plantea un enigma fascinante: ¿Por qué en unas situaciones la justicia parece tan obvia y, en otras, se vuelve tan difícil de definir? ¿Es esto una prueba de que la justicia es relativa, o simplemente refleja la complejidad de los dilemas ético?
 Si bien podría parecer una contradicción, y la justicia aparenta ser relativa en ciertos casos, este patrón recuerda mucho a cómo los humanos perciben otros fenómenos naturales objetivos. Para ilustrarlo, consideremos un ejemplo sencillo:
