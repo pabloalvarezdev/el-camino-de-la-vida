@@ -8,9 +8,9 @@ La justicia, lejos de ser un concepto subjetivo que varía entre individuos, es 
 Cuando observamos conflictos en torno a la justicia, es fácil concluir que no existe una única respuesta válida. Este razonamiento nace del hecho de que las soluciones justas no siempre son evidentes. Las diferencias en opiniones no significan que no haya una verdad subyacente, sino que a menudo carecemos de las herramientas intelectuales o emocionales necesarias para alcanzarla.
 ### Nuestras Limitaciones
 Las discrepancias en la justicia surgen, en esencia, de nuestra limitada capacidad para resolver dilemas complejos. Por ejemplo:
-•	Falta de comprensión: No siempre entendemos todos los factores implicados en una situación.
-•	Perspectiva parcial: Las experiencias personales influyen en cómo percibimos lo que es justo.
-•	Errores humanos: Nos dejamos llevar por emociones o prejuicios que distorsionan nuestra percepción de equidad.
+  •	Falta de comprensión: No siempre entendemos todos los factores implicados en una situación.
+  •	Perspectiva parcial: Las experiencias personales influyen en cómo percibimos lo que es justo.
+  •	Errores humanos: Nos dejamos llevar por emociones o prejuicios que distorsionan nuestra percepción de equidad.
 ### Introduciendo un Postulado Más Rico de la Justicia
 A medida que avanzamos en este capítulo, exploraremos cómo la justicia es una realidad inherente a la naturaleza humana. Aunque puede parecer compleja o inalcanzable en algunos casos, la Justicia no es una construcción arbitraria. Es una fuerza que sentimos y comprendemos en la medida de nuestra inteligencia, y que se convierte en un desafío constante de perfeccionamiento.
 Por ahora, dejaremos esta idea: la justicia no es relativa, sino un ideal que existe más allá de nuestras diferencias, esperando a que nuestra inteligencia la alcancen.
@@ -18,8 +18,8 @@ Si la justicia fuera algo relativo, deberíamos esperar que, ante cualquier preg
 Por ejemplo, Al hacer una pregunta como "¿Qué color prefieres, amarillo o verde?", podemos encontrar que factores como la cultura regional, las experiencias personales y las influencias sociales juegan un papel importante en nuestra preferencia. Sin embargo, no debería haber una respuesta mayoritaria o generalizada que favorezca a uno u otro color. Cada individuo tiene una percepción única, y lo que atrae a una persona puede no serlo para otra. Esto subraya la naturaleza subjetiva de nuestras elecciones, donde las respuestas no se basan en una única verdad absoluta, sino en una variedad de influencias y preferencias personales.
 Sin embargo, lo que observamos con la justicia es lo contrario: en situaciones donde la pregunta es clara y las circunstancias son evidentes, la mayoría de las personas tienden a responder de manera similar, mostrando una notable coherencia en su percepción de lo justo.
 Por ejemplo, si preguntamos a un grupo diverso de personas ¿Cuál de estos dos hechos te parece más injusto?
-1.	Un hombre pobre y sin recursos que roba naranjas para alimentar a sus hijos hambrientos.
-2.	Un médico adinerado que roba los riñones de un desconocido para comprarse un coche de lujo.
+  1.	Un hombre pobre y sin recursos que roba naranjas para alimentar a sus hijos hambrientos.
+  2.	Un médico adinerado que roba los riñones de un desconocido para comprarse un coche de lujo.
 En este caso, la respuesta parece obvia para la mayoría de las personas: el segundo caso es claramente más injusto. Este consenso muestra que, incluso en una sociedad diversa y con diferentes perspectivas culturales, hay un "sentido común" que nos permite distinguir entre grados de injusticia.
 El robo de un órgano para beneficio personal no solo viola la dignidad y la vida de otro ser humano, sino que es un acto de abuso de poder y privilegio extremo. Por otro lado, el robo de naranjas por parte de alguien en extrema necesidad se percibe como un acto motivado por la desesperación, donde el daño causado parece mucho menor y está relacionado con una lucha por la supervivencia.
 Este ejemplo evidencia que la justicia no es completamente relativa. Aunque puede haber matices en ciertos casos, existen situaciones en las que la percepción de lo justo o injusto es universal y profundamente arraigada en nuestra comprensión ética como seres humanos.
