@@ -28,8 +28,9 @@ In this case, the result would be much less clear. The answers would likely be d
 This dispersion in responses may seem contradictory. While in the previous example justice seemed evident and universal, in this case, there appears to be no clear consensus. This raises a fascinating puzzle: Why does justice seem so obvious in some situations and so difficult to define in others? Is this proof that justice is relative, or does it simply reflect the complexity of ethical dilemmas?
 While it may seem like a contradiction and justice appears relative in certain cases, this pattern is very similar to how humans perceive other objective natural phenomena. To illustrate this, let us consider a simple example:
 Imagine we ask: "Which of these colors is darker?"
-•	A color that is nearly black.
-•	A color that is nearly white.
+1.	A color that is nearly black.
+2.	A color that is nearly white.
+
 In this case, the answer would be obvious. Everyone would answer correctly and without hesitation, as the difference between the colors is clear. Human perception aligns with the objective reality of the phenomenon.
 But now let us change the scenario. Suppose we present two colors, one green and one blue, both with almost identical levels of brightness. In this case, the answers would be much more confusing and varied. Some people might say the green is darker, others might choose the blue, and others might not be sure. However, this confusion does not mean that darkness or brightness are not natural and objective properties of color. What happens is that respondents lack the ability to distinguish the difference at such a subtle level.
 ### Justice and Human Perception
