@@ -16,12 +16,14 @@ However, what we observe with justice is the opposite: in situations where the q
 For example, if we ask a diverse group of people: Which of these two actions seems more unjust?
 1.	A poor man without resources stealing oranges to feed his hungry children.
 2.	A wealthy doctor stealing kidneys from an unknown person to buy a luxury car.
+
 In this case, the answer seems obvious to most people: the second case is clearly more unjust. This consensus shows that, even in a diverse society with different cultural perspectives, there is a "common sense" that allows us to distinguish between degrees of injustice.
 The theft of an organ for personal gain not only violates the dignity and life of another human being but is an act of extreme abuse of power and privilege. On the other hand, the theft of oranges by someone in extreme need is perceived as an act driven by desperation, where the harm caused seems much smaller and is related to a struggle for survival.
 This example demonstrates that justice is not completely relative. Although there may be nuances in certain cases, there are situations where the perception of what is just or unjust is universal and deeply rooted in our ethical understanding as human beings.
 If, instead, we asked: What is more just?
 1.	A country where each person earns exactly what they are capable of producing.
 2.	A country where there is a redistribution of wealth to help those who cannot produce.
+
 In this case, the result would be much less clear. The answers would likely be divided, reflecting different perspectives and values. Some might consider it more just for everyone to receive according to their effort and ability, while others would defend the idea of redistributing resources to ensure that no one is left behind, regardless of their circumstances.
 This dispersion in responses may seem contradictory. While in the previous example justice seemed evident and universal, in this case, there appears to be no clear consensus. This raises a fascinating puzzle: Why does justice seem so obvious in some situations and so difficult to define in others? Is this proof that justice is relative, or does it simply reflect the complexity of ethical dilemmas?
 While it may seem like a contradiction and justice appears relative in certain cases, this pattern is very similar to how humans perceive other objective natural phenomena. To illustrate this, let us consider a simple example:
