@@ -86,20 +86,20 @@ For example:
 ### Beyond Biology
 Although feelings have a chemical correlate in the body (hormones, neurotransmitters, etc.), this perspective proposes that these physical reactions are merely biological responses to a feeling that results from intelligence. Just as the eye does not create light but perceives it, our brain and body do not create love or hate; instead, they experience them as part of a much larger universe.
 This idea redefines feelings as a system of perception that connects our physical existence to the universal forces of love and hate, giving them a much more transcendent purpose than we usually imagine.
-The Induction of Love and Hate: The Inertia of Their Actions
+### The Induction of Love and Hate: The Inertia of Their Actions
 A fundamental factor in love and hate is how they are transmitted. These forces propagate through intelligent beings in a way reminiscent of how a magnet can induce magnetism in a piece of soft iron. When a person is exposed to actions influenced by hate, the natural tendency is for that exposure to generate hate within them. On the contrary, if that same person is exposed to acts guided by love, it is likely that love will emerge within them.
 ### The Induction of Hate
 Hate has a disturbing ability to spread beyond its point of origin. For example, someone may be subjected to hurtful or defamatory words from a person filled with hate. These actions not only cause pain and resentment in the recipient but also extend to others who have no relationship with the origin of this destructive energy. Thus, a wound inflicted by one person can reverberate through loved ones or even strangers, creating a perpetuating cycle of hate.
 ### The Induction of Love
 Love, on the other hand, has an opposite but equally expansive effect. When a person experiences acts of kindness, compassion, or generosity, that love can awaken within them and flow toward others. This “inertia of love” effect is not limited to the person who initiated the action but can radiate toward others, generating a virtuous circle of connection and care.
-The Inertia of Forces
+### The Inertia of Forces
 One of the most critical aspects of this induction is the inertia that accompanies these forces. Once love or hate has been induced in a person, its influence does not stop with that individual. Actions carried out under the influence of these forces can impact others, perpetuating their effect across time and space. It is as though every intelligent being acts as a transmitter and amplifier of these fundamental energies.
 For example:
 •	A father who experiences hate in his work environment may, unintentionally, spill that hate onto his family, creating tensions and conflicts.
 •	On the other hand, a person who receives an unexpected act of love or kindness may replicate that gesture, even toward individuals who have no connection to the person who initiated the action.
-A Cycle That Builds or Destroys
+### A Cycle That Builds or Destroys
 This phenomenon largely explains how the forces of love and hate shape human life and social dynamics. They are forces with a high capacity for contagion, capable of building or destroying, depending on which one predominates. Understanding this mechanism allows us to become aware of the responsibility we have for the emotions and actions we propagate, knowing that every act influenced by love or hate has the potential to resonate beyond ourselves.
-Ethics as an Innate Tool for Promoting Creation and Existence
+### Ethics as an Innate Tool for Promoting Creation and Existence
 The human effort to find ethics and values is nothing more than humanity’s attempt to establish a set of rules and mechanisms that allow the creative force of love to overcome the destructive force. This ethics, as an innate tool, aims to ensure that humans endure in harmony, avoiding a cycle of hate and destruction that could, ultimately, end humanity itself.
 Through ethics, humans seek not only physical survival but also the preservation of their soul and spirit, aligning themselves with the divine to avoid self-destruction. Ethics thus becomes the guardian that guides human actions, allowing love and creation to prevail over chaos and disintegration.
 ### Justice Based on Impact
